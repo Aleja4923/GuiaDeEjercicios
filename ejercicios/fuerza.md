@@ -14,6 +14,12 @@ Flexiona las rodillas y baja las caderas como si te estuvieras sentando, asegur�
 Baja hasta que tus muslos estén paralelos al suelo o un poco más abajo.
 Vuelve a la posición inicial apretando los glúteos al subir.
 
+Consejos
+Mantén la espalda recta durante todo el movimiento.
+Controla el movimiento al bajar y subir, evitando movimientos bruscos.
+Realiza las repeticiones de manera controlada, sin apresurarte.
+
+
 
 
 
