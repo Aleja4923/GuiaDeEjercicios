@@ -19,6 +19,12 @@ Intenta estirar las piernas sin bloquear las rodillas y lleva los talones hacia 
 Mantén la cabeza entre los brazos, alineada con la columna vertebral, y mira hacia las piernas o el ombligo.
 Mantén la postura durante 5 a 10 respiraciones profundas.
 
+Consejos
+
+Mantén el core activo para proteger la zona lumbar.
+Si tienes los isquiotibiales tensos, puedes mantener una ligera flexión en las rodillas.
+Distribuye el peso de manera uniforme entre las manos y los pies.
+Respira profundamente y mantén una respiración constante para aprovechar los beneficios relajantes de la postura.
 
 
 
