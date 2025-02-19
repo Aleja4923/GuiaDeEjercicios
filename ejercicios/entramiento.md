@@ -16,8 +16,7 @@ Salta hacia adelante para llevar los pies cerca de las manos.
 Salta hacia arriba, estirando los brazos por encima de la cabeza.
 Repite el movimiento para realizar la cantidad deseada de repeticiones.
 
-
-
-
-
-
+Consejos
+Mantén el core activado durante todo el movimiento para evitar lesiones.
+Haz los movimientos de forma controlada, especialmente cuando saltes hacia atrás y hacia adelante.
+Si eres principiante, puedes empezar sin la flexión de brazos o con menos velocidad para adaptarte al ejercicio.
