@@ -6,5 +6,10 @@ Correr es una actividad cardiovascular efectiva que mejora la salud del corazón
 Descripción
 Correr es una actividad cardiovascular efectiva que mejora la salud del corazón y quema calorías rápidamente.
 
+Instrucciones
+Comienza con una caminata ligera de 5-10 minutos.
+Corre durante 30 minutos a un ritmo moderado.
+Termina con un trote suave y estiramientos.
+
 
 
